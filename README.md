@@ -14,6 +14,7 @@ Through the help of my college courses and online programs like Scrimba, I am cu
 - CSS
 - JavaScript
 - Python
+- C (but just a little...)
 
 
 ## A little bit more about me.
