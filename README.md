@@ -26,4 +26,4 @@ Through the help of my college courses and online programs like Scrimba, I am cu
 
 ⚡️ Fun fact: I'm a big fan of fly fishing! In my experience, this is a perfect complement to my current line of work because it is my escape and a way to get away from the many complicated aspects of work. I've fished all over the country but my eyes will always be set on the rivers of the Mountain West! It doesn't get better than that!
 
-📫 How to reach me: I feel comfortable receiving emails at benjaminafoster4@gmail.com. I am able to read and action emails at that address quickly, and I can just as quicly add spam traffic to my spam filter. It's a skill I've developed extensively. So no spamming.
+📫 How to reach me: I feel comfortable receiving emails at benjaminafoster4@gmail.com. I am able to read and action emails at that address quickly, and I can just as quickly add spam traffic to my spam filter. It's a skill I've developed extensively. So no spamming.
