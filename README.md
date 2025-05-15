@@ -31,7 +31,7 @@ I'm a passionate **cybersecurity learner** dedicated to protecting the digital w
 - 💼 [LinkedIn](https://www.linkedin.com/in/benjamin-a-foster)
 - 🦅 [@aquilnox](https://x.com/aquilnox)
 
-> “Security isn’t a product, it’s a process.” – Bruce Schneier
+> “Silent. Aware. Unseen."
 
 ---
 
