@@ -27,7 +27,7 @@ I'm a passionate **cybersecurity learner** dedicated to protecting the digital w
 
 ## 🚀 Let's Connect
 
-- 🌐 [aquilnox.tech](https://aquilnox.tech) (coming soon)
+- 🌐 [Blog](https://aquilnox.tech)
 - 💼 [LinkedIn](https://www.linkedin.com/in/benjamin-a-foster)
 - 🦅 [@aquilnox](https://x.com/aquilnox)
 
